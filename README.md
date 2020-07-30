@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on youtube
 - 🤔 I’m looking for help with projects and jobs.
 - 💬 Ask me about Html and Css
-- 📫 How to reach me: Twiiter-[twitter @Cmeon_G](https://twitter.com/Cmeon_G) Email- agholorisimeon@gmail.com
+- 📫 How to reach me: [twitter @Cmeon_G](https://twitter.com/Cmeon_G) Email- agholorisimeon@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love Driving and surfing the web.
 -->
